@@ -64,7 +64,7 @@ with whomelse i can do similar with
 
 this from stinette:
 
-![[attachments/Pasted image 20230107162144.png]]
+![](attachments/Pasted%20image%2020230107163140.png)
 
 dean took his own life
 
@@ -88,7 +88,7 @@ more of a thing then the temple thing
 a thing a ling if you will
 
 
-![[attachments/Pasted image 20230107162055.png]]
+![](attachments/Pasted%20image%2020230107163231.png)
 
 this was in the program i designed
 for the celebration of life for
@@ -115,7 +115,7 @@ i decided i'd print that one for him
 
 this is the one i'll print for seth:
 
-![[attachments/Pasted image 20230107162231.png]]
+![](attachments/Pasted%20image%2020230107163252.png)
 
 such low resolution
 i don't know how that slipped through
